@@ -1,4 +1,15 @@
 # java-tutorial
 
 
-# PLS UP 0 STARS TO 10 STARS
+PLS UP TO 10 STARS
+
+
+
+EN
+
+
+
+
+RU
+
+
